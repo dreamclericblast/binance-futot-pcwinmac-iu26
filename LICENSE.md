@@ -1,4 +1,4 @@
-# 
+# Elite binance futures bot templates for Mac OS | Premium binance futures bot templates for PC Windows. Featuring mean reversion strategy and centralized exchange api — optimized for maximum performance.
 
 
 
